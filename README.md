@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AALK990723MBCYNR01
+AALK990723MBCYNR01
